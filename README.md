@@ -1,0 +1,2 @@
+# hamplingensf.se
+Hämplingens samfällighetsförening
